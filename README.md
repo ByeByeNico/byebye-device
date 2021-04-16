@@ -1,5 +1,5 @@
 # Super, den ersten Schritt hast du geschafft!
-Das war doch gar nicht so schwer í ½í¸Š
+Das war doch gar nicht so schwer :-)
 
 # So geht's weiter
 Nimm die RÃ¤tsel-Karten J, K, und L aus dem Stapel und schau sie dir an.
